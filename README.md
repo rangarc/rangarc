@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rangarc
-- 👀 I’m interested in ... experimenting
+- 👀 I’m interested in ... learning
 - 🌱 I’m currently learning ... things
 - 💞️ I’m looking to collaborate on ... cool stuff
 - 📫 How to reach me ... find me
